@@ -2,7 +2,7 @@
 - 👀 I’m interested in mining.
 - 🌱 I’m currently learning R.
 - 💞️ I’m looking to collaborate on anything R.
-- 📫 How to reach me: email bgroff@groffengineering.com
+- 📫 How to reach me: email bgroff@groffengineering.com or brian_groff@msn.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I like old motorcycles.
 
